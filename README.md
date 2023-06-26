@@ -1,1 +1,1 @@
-my first readme
+coding na wa ooo
